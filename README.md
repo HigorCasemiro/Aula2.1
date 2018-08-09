@@ -1,3 +1,4 @@
 Silvio Santos
-Lívia Andrade
+Lívia Silva
 Faustão
+Helen Ganzarolli
